@@ -6,3 +6,4 @@ I have been playing hockey thoroughly for many years.
 I love sports and music.
 
 I hope this is enough to pass.
+![Фото](https://avatars.mds.yandex.net/get-kinopoisk-image/1600647/3366db39-b330-48fe-9c7c-e20823fa44ed/1920x)
